@@ -1,1 +1,0 @@
-# PRAKTIKUM-ALPRO-1-
